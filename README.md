@@ -19,13 +19,15 @@ VenusHub is a space to connect with the stars, offering a quiet, personal way to
 
 ---
 
-## 📫 Let’s Connect
+## 📫 Get in Touch
 
-- 🌐 Website: [venushub.ai](https://venushub.ai)
-- 💌 Reach out via the VenusHub website
+- 🌐 Website: [venushub.ai](https://venushub.ai/)
+- 🐦 Twitter: [@venushubai](https://twitter.com/venushubai)
+- 📸 Instagram: [@venushubai](https://instagram.com/venushubai)
+- 📧 Email: [maria@venushub.ai](mailto:maria@venushub.ai)
 
 ---
 
-> _“The stars guide us to understand ourselves.”_
+*“As above, so below; as within, so without.”* – Hermes Trismegistus
 
-Thanks for visiting! 🌙✨
+Thank you for visiting my profile. Let's explore the stars together! ✨
